@@ -1,4 +1,3 @@
 # document
 
-Test
-Test
+After research, it has been agreed to provide JD Odin Development II Limited with a maximum of RMB 1,669,048,780 in acquisition funding and a maximum of RMB 700 million in working capital loans, using a syndicated loan method, with our bank as the lead bank and agent bank. Among them, China CITIC Bank participates in the acquisition loan amount not exceeding RMB 1 billion, and China CITIC Bank participates in the working capital loan amount not exceeding RMB 400 million. It has been agreed to provide a maximum of RMB 85 million in forward foreign exchange settlement limit.
